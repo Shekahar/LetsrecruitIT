@@ -1,2 +1,2 @@
 # LetsrecruitIT
-Here to provide IT Professionals few good options!  
+I am a recruiter working in the United states and Canada market sourcing top talent for my clients
